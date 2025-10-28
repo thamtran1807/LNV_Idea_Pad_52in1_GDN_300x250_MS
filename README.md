@@ -1,0 +1,2 @@
+# LNV_Idea_Pad_52in1_GDN_300x250_MS
+LNV_Idea_Pad_52in1_GDN_300x250_MS
